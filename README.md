@@ -1,1 +1,1 @@
-# SDG-Progress-Africa-Challenges-Opportunities-Strategies
+# SDG Progress Africa Challenges Opportunities Strategies
